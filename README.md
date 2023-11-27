@@ -1,1 +1,1 @@
-# Patst-vigais-darbs - Mašīnu izvele
+# Patst-vigais-darbs - Masīnu izvele
