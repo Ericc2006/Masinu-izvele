@@ -1,1 +1,1 @@
-# Patst-vigais-darbs
+# Patst-vigais-darbs - Ma;sīnu izvele
